@@ -7,7 +7,7 @@
 - 2-3 carrots (chopped finely)
 - 2-3 celery sticks (chopped finely)
 - 2 tbsp of brown sugar
-- Dried basiol OR oregano
+- Dried basil OR oregano
 - 1/2 cups of lentils
 - butter
 - A dab of lemon juice
